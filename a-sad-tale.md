@@ -5,3 +5,5 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 Geoffrey ended up cutting off his naive head. What a chump.
 
 Joffrey Baratheon was the one to do Ned in, but his story was only about to being, and let me assure you he will DEFINITELY NOT DIE!
+
+Joe's part
